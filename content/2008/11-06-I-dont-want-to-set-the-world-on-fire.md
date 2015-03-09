@@ -1,0 +1,25 @@
+Title: I don't want to set the world on fire....
+Date: 2008-11-06
+Slug: I-Dont-Want-To-Set-The-World-Fire
+Category: Gaming
+Tags: gaming, fallout 3, review
+
+[Fallout 3](http://fallout.bethsoft.com/) Review.
+
+I picked up a collectors edition box of Fallout 3 (here forward referred to as FO3) yesterday afternoon at my local Best Buy. I've been waiting for this game for a little over a decade, so to say that I was excited to see it in true published form is a bit of an understatement. I was also nervous as FO3 has a ton to live up to after a decade away, for those of you that haven't played 1 or 2 yet GOG.com just opened it's public beta period and has both of them for purchase thru their site (I've purchased 1 since I've lost my disk copy, works as well as the disk did).
+
+I've gotten to play for about 10 hours at this point and have been pleasantly surprised with the quality of the game throughout. There's a great many elements of the previous games incorporated into this one in positive ways. The failings that are present are partially an effect of the scope of the game and the method of presentation compared to previous titles more than anything else.
+
+For example, super mutants are still scary (thou oddly less so than I had expected thus far...), irradiated insects are still as tenacious as ever and raiders are still psychotic. The wastes are still well.. Wastes; albeit highly detailed. They've even gained some new fun details, like somewhat more destructive environments (for kicks cars explode now and then), and enemies with actual tactics. The Talon Company Mercs have most notably thus far been quite accomplished at burring bullets in my skin, as well as missiles; the police batons they carry don't pack much of a punch, but that doesn't matter when your forced to melee one while another pounds on you with rifle fire.
+
+A few things have left, some good some bad. The time based story props from 1 and 2 have been dropped, with it now being an 'O shit, get out before you die' instead of a 'leave to save everyone else's sorry ass'. However the mount (in this case a car) and main map travel have been a bit altered. In that you have lost the car entirely (and it's overly valuable trunk) and main map travel has been replaced with Oblivion style instant travel.
+
+This brings me to one of the greatest failings the game has but it's one I understand fully. The main map system with the car worked great when the towns and exterior areas were distinct and separate game props.  However in FO3 these two devices are inseparably linked, which sadly means it no longer makes sense for random encounter Easter Eggs (a favorite feature of the previous games for me). It also kills the possibility of a viable mount, and random encounters in transit because there's no practical way of predicting where exactly you would have to travel moving from pt A to pt B. For instance once I had stepped thru the one way exit to Three Dogs little radio station I was capable of fast traveling where ever I wanted, despite the fact that the door behind me was a one way device.
+
+That is my only major complaint. The score is great. The look and feel of the world is spot on. Many (but not all) of the buildings are fully explorable. Re-playability is high if for no other reason than choosing certain skills will invariably lock you off from pursuing certain regions of the game(It's re-playable for other reasons as well, but these choices will make you want to come back latter with a different character to access that information). Pretty much everything that is to be expected from a fallout game (even if it appears to be a bit dry in the Easter Egg area).
+
+TLDR:
+This game is NOT Oblivion set in Fallout, but it has some features that harken back to that style of game. It is in fact far more true to the original series of games than I had suspected was possible at all. If you loved the original games, you'll adore this one as well. If you loved Oblivion and / or Morrowind you'll probably love this game as well. If you love RPG's and can accept the idea of a 1st Person game (or if your feeling the need, third person over the shoulder cam) you'll probably enjoy this game. Definitely worth picking up if you're an RPG fan.
+
+Brass Tacks:
+For people expecting oblivion, you're going to be a bit disappointed, but the lack of scaling enemies (at least evenly scaling ones) will allow you to get a more powerful feeling character than that game allowed which isn't always a bad thing. Also this game doesn't have anything like magic, enchanted items or potions so no mini-maxing in that manner, however perks do fill that gap in some ways. All that being said there's been a few things so far that have struck me as 'off' from both a story canon perspective and non-canon time line (for those that doesn't think tactics is a 'real' fallout game). I can't put my finger on it, and the gameplay / look and feel of the game are so amasing it hasn't troubled me more than a tickle here and there. Definitely worth buying.

@@ -1,0 +1,24 @@
+Title: WoW is evil, it's still awesome.
+Date: 2008-04-21 10:00
+Category: Gaming
+
+No really it's evil. This doesn't mean it's not awesome, it's just that the skills it's awesome at happen to be wasting a fantastic amount of time and stealing your social life against your will.
+
+For those who have no idea what I'm talking about take a wander over to the [World of Warcraft Website](http://us.battle.net/wow/en/) and check it out. The game (or job for some people) is actually alot of fun and the way the expansions are done starting a new character at expansion time isn't a completely impossible prospect (even if it's somewhat daunting).
+
+I've been playing the game since a few months after it came out and was entirely hooked during my initial play period. This was cut short by a segment of my senior year of college where I simply couldn't afford to play the game and go to school at the same time. Finishing two degrees is difficult enough without any distractions and having a time sink like WoW would have done nothing but severely damage to my ability to pass my classes.
+
+Since returning to the game from my first hiatus I've realized WoW can fill a few other niches than the 'I must play all day every day' niche in a persons life. And this realization has brought me a peace with the game that I never got when I was playing every day and trying to raid constantly to get new gear.
+
+In effect I've become the casual gamer when it comes to WoW (Lost Odyssey may take some issue with that statement however). In this model it doesn't really matter how long it takes me to get to 70, I'd like to get there before the next expansion and enjoy the upper end content a few times thru but I'm not going to rush my way to 70 just to do that. It's also stopped being my primary source of entertainment. I play it when I don't have games to play, so it'll get more love when I've beaten Lost Odyssey, Dynasty Warriors: Gundam and Lost Planet. And only then if I don't decide to pickup Mario Kart immediately after it comes out.
+
+TLDR:
+The main advantages of this approach are that I actually enjoy the game when I log on. Many of the non raiding 70's I know have no idea why they log on. They make 1500 gold a week but for no reason that they can think of, so it's basically spinning their wheels while they wait for the expansion. That's fine but not for me, I'd rather enjoy the walk there a bit longer; and then I'll probably max out my crafting skills and move onto my other character who's been chilling out at around level 58 for a while now. The one thing I've decided to not do more than absolutely necessary is slaying the same things repeatedly for the 'WAHOO I GOT ONE (25 more to go...)!' if I can absolutely avoid it. This combined with dailies has turned WoW into less of a game designed to be fun and more into a game designed to be a second job. I've been there and done that, and I'm willing to do it to work on my professions and factions. I'm not willing to do it just to be sufficiently buffed up to simply survive an encounter, potions and buffs should be there to give you an edge not be a necessity for survival.
+
+
+Brass Tacks:
+This approach obviously isn't for everyone. I've basically sacrificed my ability to do the high end content and I'm lucky enough to be in a guild with a GM that doesn't care what I do so long as I don't cause her any problems. It also helps that I'm not on a PVP server, so I can actually log on and enjoy myself without a 9 year old stabbing me in the back and then camping my body for the entire evening (and the incumbent fact that I now serve as a form of parental supervision for this muck child). There's also a chance I won't get to see any of the high level content, and I'm still paying for a subscription that I'm not 'getting the most out of'. However bear in mind that what you get out of a massive multi player game like WoW is whatever you want to get out of it. I've got a few very good friends out of the time I've played the game and have been known to just log on to talk to them, so value as in all things is entirely subjective.
+
+On the upside, that sacrificed content has lent me more time to do other things. Like painting my condo, I recently finished the living room area and it looks fantastic. If I'd been dedicating the amount of time I used to in game I'd never have completed this project. Outdoor activities are a bit easier to pull off as well, so things like my bike are getting shown some extra love.
+
+The best part about being a casual gamer? I can play a survival hunter and nobody complains, this used to be a lightning rod complaint when people were displeased with me as an officer and what not. Also I get left entirely out of guild politics, which is wonderful. I loved being an officer and helping out the guild, but guildies suck; it's a hard learned fact and not having to deal with them is a positive dream sometimes.
